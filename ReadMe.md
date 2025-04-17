@@ -69,8 +69,8 @@ In the competitive restaurant industry, understanding what drives business succe
 
 ---
 ## 👤 Author
-**[Muhammad Haris]**  
+**[SecureC0der]**  
 Data Analyst | Passionate about turning raw data into business insights  
-[LinkedIn Profile] (https://www.linkedin.com/in/mohammad-haris-780bb821a)
+🔗 [Linkdn Profile](https://www.linkedin.com/in/muhammad-haris-780bb821a)
 
 
